@@ -39,3 +39,5 @@ Once upon a time in a charming little town, there lived a group of Once upon a t
 
 the end
 
+read 2.txt
+
