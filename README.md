@@ -1,43 +1,3 @@
 # Whimsical Trails: The Mysterious Misadventures of Furry Friends
 
-PIECE 1:
-
-Once upon a time in a charming little town, there lived a group of adorable animal friends. There was Patch, the curious puppy, who loved exploring the meadows, and Flora, the graceful fawn, who frolicked through the forest with elegance. They were joined by Benny, the mischievous squirrel, who always managed to find the tastiest acorns, and Rosie, the wise old owl, who watched over them with a gentle wisdom.
-
-Every day, the four friends would embark on exciting adventures together. They would chase butterflies, build cozy nests, and share stories under the twinkling night sky. Their innocent laughter filled the air, as they reveled in the joy of their companionship.
-
-REBOOT:
-
-A fatal 0E exception has occurred and the story needs to restart. Sorry about that! We'll get you up and running in no time; please wait...
-
-PIECE 2:
-
-Once upon a time in a charming little town, there lived a group of adorable animal friends. There was Patch, the curious puppy, who loved exploring the meadows, and Flora, the graceful fawn, who frolicked through the forest with elegance. They were joined by Benny, the mischievous squirrel, who always managed to find the tastiest acorns, and Rosie, the wise old owl, who watched over them with a gentle wisdom.
-
-Every day, the four friends would embark on exciting adventures together. They would chase butterflies, build cozy nests, and share stories under the twinkling night sky. Their innocent laughter filled the air, as they reveled in the joy of their companionship.
-
-Then one day, everyone disappeared without a trace... The only evidence left of anybody even existing was the leftover blood of the characters that had disappeared.
-
-REBOOT:
-
-We are currently running a software update; please wait...
-
-PIECE �:
-
-Once upon a time in a charming little town, there lived a group of adorable animal friends. There was /@Ó*0³µTó, the curious puppy, who loved exploring the meadows, and 5©Zz¬Æ×Øü, the graceful fawn, who frolicked through the forest with elegance. They were joined by W}nrFP^Ñq<, the mischievous squirrel, who always managed to find the tastiest acorns, and ža¹øqÑñbÔ)é, the wise old owl, who watched over them with a gentle wisdom.
-
-Every day, the four friends would embark on exciting adventures together. They would chase butterflies, build cozy nests, and share stories under the twinkling night sky. Their innocent laughter filled the air, as they reveled in the joy of their companionship.
-
-žcV£šìÍ=Ÿäßño\rÀM·
-Ið\,ŠCdî€gyÓAxv/žç(á¹FÈíðÈKS·_Ëyª£rJP8ÎóHfäü^HÇHÂ-ÞæBÂØ/{Nëì
-×é²Ç{.ß!~±¶ê[õ%Ê¥ÖªSa«ß"®o^Šo^îŸ=Þ+`ôqå+ñ$ŸÇtc«4©«­C€kŒriER×åÆEºŒõùFne]¯"7þè3`bg;¢`z2m¹)áÆc/0ÌžYn1>æ£2êÞêI qÛ«ædž+t
-ÝiB3åãùS¡[ÄPÏkÝxÉ£X8iû^%j`xÙßaðxaW\BÂÛ6Ñdõ6R6`ÇÀ}SÁ]^ŸÚ¯»{i¹º¹G3s¯envŽC?œ#ž÷#®ÓÙ)~Ï!òUFìlkF8	HÔÆ9<.Íy±Ý}mhïïvsö¥}Ðhy9æ.Ìl3è«K¥ÅÚ€Jºk,í¢Úà!!
-Ùý+[kÄa!	pô1µ\Va®Â«œdÎns"ß í:Ñ bèCÈPü+ÿŸŸþ·ÿcà4×ëI
-YõÎb Æ¶­'ú5Dûà4žnÛÚ>>ðø\éŸx
-Òóãî×rÊ0ë#d_×öÒcæÅ"QM|áe5Oüy6H)-\Èi&Œ1éË
-
-PIECE UNDEFINED:
-Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of Once upon a time in a charming little town, there lived a group of 
-
-the end
-
+check wttmmoff.txt
