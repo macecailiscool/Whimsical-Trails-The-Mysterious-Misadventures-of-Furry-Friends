@@ -27,3 +27,5 @@ As time passed, the story of the town and its ill-fated inhabitants became nothi
 And so, the charming little town remained trapped in its sorrowful existence, forever haunted by the curse and the memories of those who had met their untimely demise.
 
 The world eventually collapsed and was destroyed. The end.
+
+read 3.txt
